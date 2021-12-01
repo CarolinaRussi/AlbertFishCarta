@@ -1,6 +1,6 @@
 # AlbertFishCarta
 
-#A carta
+# A carta
 
 Querida Sra. Budd,
 
@@ -12,7 +12,7 @@ No domingo 3 de junho de 1928 telefonei para vocês no 406 w 15 st. Trouxe-lhes 
 Tirei a roupa de Grace, deixando-a nua. Como ela chutou, mordeu e arranhou! Eu a asfixiei até a morte, então a cortei em pequenos pedaços para poder levar a carne para meus aposentos. Cozinhei e comi aquilo. Como era doce e saboroso seu pequeno lombo assado no forno. Levei nove dias para comer seu corpo inteiro. Eu não fodi a menina, embora pudesse tê-lo feito, se tivesse desejado. Grace morreu uma virgem.
 
 
-#links com a carta:
+# links com a carta:
 
 https://aminoapps.com/c/terroramino_pt/page/blog/a-carta-do-albert-fish/J8mV_P64hduPoPaBd75DBKjj88YGj7BvGw3
 
