@@ -1,6 +1,21 @@
 # AlbertFishCarta
 
-# A carta
+# A confissão de ALbert Fish para a mãe de Billy
+
+“Eu o trouxe para uma casa que fica isolada, não muito longe de onde eu o peguei … Eu levei o menino lá.  Tirei suas roupas e amarrei as mãos e os pés e o amordacei com um pedaço de pano sujo que peguei no lixo. Depois queimei suas roupas. Joguei os sapatos no lixo. Depois voltei e peguei o trêm e fui para casa.
+
+“No dia seguinte, por volta das 14 horas, peguei ferramentas. Eu cortei suas orelhas, nariz – cortei sua boca de orelha a orelha.  Arranquei seus olhos. Ele estava morto então. Eu enfiei a faca em sua barriga e segurei minha boca em seu corpo. bebi seu sangue.
+
+“Peguei quatro sacos velhos de batata e juntei uma pilha de pedras.  Depois eu o cortei. Coloquei o nariz, orelhas e algumas fatias de sua barriga no punho.  Então eu o cortei no meio do corpo. Logo abaixo do umbigo. Depois, as pernas dele, Cortei a cabeça, pés, braços, mãos e pernas abaixo do joelho.  Depois coloquei sacos pesados com pedras, amarrado nas extremidades e os joguei no piscinas de água viscosa que você verá ao longo da estrada.
+
+Durante suas entrevistas com a polícia, Fish confessou ainda mais: “Eu cheguei em casa com minha carne.  Eu gostava mais da frente do corpo dele. Seus genitais e uma boa gordura do traseiro eram boas para assar no forno e comer.  Fiz um ensopado de seus ouvidos, nariz – pedaços de seu rosto e barriga – coloquei cebola, cenoura, nabos, aipo, sal e pimenta  .
+
+“Então eu abri as bochechas dele, cortei seus genitais e lavei. Coloquei tiras de bacon em cada bochecha e as coloquei no forno.  Depois de assar cerca de 1/4 hora, coloquei cerca de um litro de água sobre ele para molhar e coloquei as cebolas.Em intervalos freqüentes, batia no traseiro dele com uma colher de  pau.Então, a carne seria agradável e suculenta.
+
+“Em cerca de duas horas, estava agradável e marrom, cozido.  Eu nunca comi nenhum peru assado que tivesse um sabor tão bom quanto o seu doce e gordo traseiro.  Eu comi cada pedaço de carne em cerca de quatro dias. Seus genitais estavam doces como uma noz, mas eu não conseguia mastigar. Joguei-as no banheiro. “
+
+
+# A carta de Albert Fish para a Sra. Budd
 
 Querida Sra. Budd,
 
@@ -12,10 +27,14 @@ No domingo 3 de junho de 1928 telefonei para vocês no 406 w 15 st. Trouxe-lhes 
 Tirei a roupa de Grace, deixando-a nua. Como ela chutou, mordeu e arranhou! Eu a asfixiei até a morte, então a cortei em pequenos pedaços para poder levar a carne para meus aposentos. Cozinhei e comi aquilo. Como era doce e saboroso seu pequeno lombo assado no forno. Levei nove dias para comer seu corpo inteiro. Eu não fodi a menina, embora pudesse tê-lo feito, se tivesse desejado. Grace morreu uma virgem.
 
 
-# links com a carta:
+# links com a confissão e a carta:
 
 https://aminoapps.com/c/terroramino_pt/page/blog/a-carta-do-albert-fish/J8mV_P64hduPoPaBd75DBKjj88YGj7BvGw3
 
 https://mysteriesrunsolved.com/pt/2020/11/cannibal-albert-fish.html
 
 https://d2r8r0qhs4bt8m.cloudfront.net/wp-content/uploads/2019/10/18161302/desktop-1452706026.png
+
+http://1peacekeeper1.blogspot.com/2011/07/two-confession-letter-of-albert-fish.html
+
+https://klebiasaraiva.com.br/caso-real-albert-fish/
