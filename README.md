@@ -1,6 +1,6 @@
 # Albert Fish: Confissão e Carta
 
-# A confissão de ALbert Fish para a mãe de Billy
+# A confissão de Albert Fish para a mãe de Billy
 
 “Eu o trouxe para uma casa que fica isolada, não muito longe de onde eu o peguei … Eu levei o menino lá.  Tirei suas roupas e amarrei as mãos e os pés e o amordacei com um pedaço de pano sujo que peguei no lixo. Depois queimei suas roupas. Joguei os sapatos no lixo. Depois voltei e peguei o trêm e fui para casa.
 
